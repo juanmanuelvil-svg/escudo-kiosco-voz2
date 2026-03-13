@@ -1,0 +1,1 @@
+# escudo-kiosco-voz2
